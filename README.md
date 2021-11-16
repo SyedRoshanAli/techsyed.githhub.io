@@ -1,1 +1,0 @@
-# techsyed.githhub.io
